@@ -1,4 +1,4 @@
-## Hi there 👋
+## não desista dos seus sonhos, não acorde 👋
 
 <!--
 **pedrodobaile222/pedrodobaile222** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
